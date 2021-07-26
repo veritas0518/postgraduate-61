@@ -1,0 +1,2 @@
+# postgraduate-61
+It rained heavily in Shanghai today, but no one told me to work at home today. I really took it. I asked at 7:59 in the morning. I haven't returned yet. I don't know what I think. I don't know whether I will go to work tomorrow. I don't know how long it will take to send a message. How can there be such a company? I don't feel like a collective. Everyone is doing their own things. People don't communicate with each other. They can't say a few words a day. I can't stand such a working environment. Now it's finally back. I'm really convinced.
